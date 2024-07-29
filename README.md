@@ -9,4 +9,4 @@
 ##  **_THIRD DAY_**
 | Dr.Randhir Singh |Dr.Pyaare Laal|Mr.Sony Goyal|Mr.Pancham|
 |:-|:-|:-|:-|
-#### **_Dr.Randhir_** Sir told us about Github.How to use and make profile on it.This helped us alot.**_Dr.Pyaare Lal_** Sir told us very importance things.He told us about the importance of education that without education there is nothing.He also told us about his struggling life,which really inspired us._**Mr.Sony Goyal_**Sir 
+#### **_Dr.Randhir_** Sir told us about Github.How to use and make profile on it.This helped us alot.**_Dr.Pyaare Lal_** Sir told us very importance things.He told us about the importance of education that without education there is nothing.He also told us about his struggling life,which really inspired us.**_Mr.Sony Goyal_**
