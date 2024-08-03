@@ -15,8 +15,7 @@
 | Dr.Randhir Singh |Dr.Pyaare Laal|Mr.Sony Goyal|Mr.Pancham|
 |:-|:-|:-|:-|
 | AUDITORIUM SESSION |AUDITORIUM SESSION|AUDITORIUM SESSION|AUDITORIUM SESSION|
-#### **_Dr.Randhir_** Sir told us about Github.How to use and make profile on it.This helped us alot.**_Dr.Pyaare Lal_** Sir told us very importance things.He told us about the importance of education that without education there is nothing.He also told us about his struggling life,which really inspired us.**_Mr.Sony Goyal_** Sir motivated us with his words.He gives us 4 rules to succeed in life:                    
- * 1.Give your 100% in everything.      2.Have faith in youself.             3.He taught us the meaning of LIFE:L-Learn,I-inquiry,F-Future,   Exploration & Enjoy.                   4.No tension Full attention.     
+#### **_Dr.Randhir_** Sir told us about Github.How to use and make profile on it.This helped us alot.**_Dr.Pyaare Lal_** Sir told us very importance things.He told us about the importance of education that without education there is nothing.He also told us about his struggling life,which really inspired us.**_Mr.Sony Goyal_** Sir motivated us with his words.He gives us 4 rules to succeed in life:  1.Give your 100% in everything.                         2.Have faith in youself.            3.He taught us the meaning of LIFE:L-Learn,I-inquiry,F-Future,   Exploration & Enjoy.                4.No tension Full attention.     
 ####  Listening to them was pleasure to us,their words really encouraged us.  
 ## **_FOURTH DAY_**
  | IT Department Visit|
