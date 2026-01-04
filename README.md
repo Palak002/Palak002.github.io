@@ -1,6 +1,6 @@
 # Palak002.github.io
 ## Palak ##
-### Hey!I'm Palak Mishra.I'm from Ludhiana,Punjab.I have done my schooling from Baba Mukand Singh Senior Secondary School,Ludhiana.I got 76.4% in my 12th grade.  Currently I'm pursuing my graduation from Guru Nanak Dev Engineering College, Ludhiana in B.Tech(Information Technology).
+### Hey!I'm Palak Mishra. I'm from Ludhiana, Punjab. I have done my schooling from Baba Mukand Singh Senior Secondary School, Ludhiana.I got 76.4% in my 12th grade.  Currently I'm pursuing my graduation from Guru Nanak Dev Engineering College, Ludhiana in B.Tech(Information Technology).
 ##  CERTIFICATE OF EXCEL
 #### Here is my Excel certificate.Excel course was an invaluable learning experience for me.I had learn alot from it.I gained huge knowledge from it and learn new skills from it.
 ##  ![palak (1)](https://github.com/user-attachments/assets/a0b7f5f1-839d-4708-9272-467f5b3c958e) 
